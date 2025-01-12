@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Cello75 / Marcello, born 1975, (haha - really :)
+- 👋 Hi, I’m @Cello75 / Marcello, born in 1975, (haha - really :)
 - 👀 I’m interested in ... perfect eco-household, music, little pc/smartphone meanwhile
 - 🌱 I’m currently learning ... new (music) notes
 - 💞️ I’m looking to collaborate on ... nothing around here..
